@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @M0LDY-CR4N1UM, I'm 31, transgender/ftm/non-binary
+- 👋 Hi, I’m @M0LDY-CR4N1UM, I'm 32, transgender/ftm/non-binary
 - 👀 I’m interested in music, game dev, video games, cyber security, art, martial arts,AI...
 - 🌱 I’m currently learning everything, i'm  new to programming and coding, c++
 - 💞️ I’m looking for a mentors or people to learn from in general
